@@ -7,6 +7,7 @@ dream to building superholding company in tech industry & building finance compa
 contact me, if you have idea in startup and u need partner
 
 [instagram](https://instagram.com/_fauzanhusain) ·
-<fauzanhusain@proton.me>
+<fauzanhusain@proton.me> ·
+[portfolio](https://fauzanhusain.com)
 
 </div>
