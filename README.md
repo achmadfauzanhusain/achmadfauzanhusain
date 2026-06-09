@@ -2,6 +2,7 @@
   
 ![Peter Thiel](https://theintercept.com/wp-content/uploads/2017/02/peter-theil-citizenship-donald-trump-2-1485966588.jpg?w=800)
 # Supporting High Technology & High Testosterone
+dream to building superholding company in tech industry & building finance company
 
 [instagram](https://instagram.com/_fauzanhusain) ·
 <fauzanhusain@proton.me>
