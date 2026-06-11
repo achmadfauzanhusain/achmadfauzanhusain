@@ -4,7 +4,7 @@
 # Supporting High Technology & High Testosterone
 Dream to Building Superholding Company in <b>Tech Industry</b> & Building <b>Finance Company</b>.
 <br/>
-Contact Me, if You have idea in <b>Startup</b> and u need <b>Partner</b>
+Contact Me, if you have idea in <b>Startup</b> and u need <b>Partner</b>
 
 [instagram](https://instagram.com/_fauzanhusain) ·
 <fauzanhusain@proton.me> ·
