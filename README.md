@@ -1,6 +1,6 @@
 <div align="center">
   
-![Peter Thiel](https://theintercept.com/wp-content/uploads/2017/02/peter-theil-citizenship-donald-trump-2-1485966588.jpg?w=600)
+![Peter Thiel](https://theintercept.com/wp-content/uploads/2017/02/peter-theil-citizenship-donald-trump-2-1485966588.jpg?w=500)
 # Supporting High Technology & High Testosterone
 Dream to Building Superholding Company in <b>Tech Industry</b> & Building <b>Finance Company</b>.
 <br/>
